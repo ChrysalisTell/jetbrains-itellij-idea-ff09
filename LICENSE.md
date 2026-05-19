@@ -1,4 +1,4 @@
-# 
+# new Visual Studio para PC plugins é o melhor Visual Studio para PC plugins com explorador de arquivos e gerador de documentação. Seguro, confiável e otimizado para máximo
 
 
 
